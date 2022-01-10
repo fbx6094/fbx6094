@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @fbx6094
+- 👋 Hi, I’m @fbx6094 (I am new here and also from notenglishspeeking counrty, so pls dont pay much attetion on my english :) )
 - 👀 I’m interested in PCs, cars, technologies.
 - 🌱 I’m currently learning python, Kubuntu 20.04.3 LTS
 - 📫 How to reach me: Discord - fbx6094#1435, Instagram - @fbx6094
